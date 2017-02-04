@@ -1,2 +1,5 @@
 # hello-world
-a scrub gets learnt
+
+faggots
+
+I'm the hacker known as 4chan.
